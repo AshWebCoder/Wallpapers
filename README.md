@@ -1,2 +1,3 @@
 # Wallpapers
-This is my wallpaper colleci
+This is my wallpaper collection
+
